@@ -1,7 +1,5 @@
-# LOL
+# My discord is JLC#0001
 
-# My discord is JLC#1147
-
-# My roblox is JeremyLikesCars
-
-s
+* I'm a lua scripter
+* I make projects for fun
+* Im really cool (no way really?!?!?!??!? 😲😲😲😲)
